@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mayumayumau.github.io/rsschool-cv/cv
